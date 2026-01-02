@@ -9,3 +9,4 @@
 <sub>$\color{#a22767}{\textsf{pls ignore tht i cosplay as jimmy pissman in pt}}$
 <sub>$\color{#a22767}{\textsf{im planning to make othr membs but im lazy af}}$
 <sub>$\color{#a22767}{\textsf{i dont support the band, im fully aware of the controversy}}$
+<sub>$\color{#a22767}{\textsf{ice cream will never fix this}}$
